@@ -8,7 +8,7 @@
 
  <b>   <br>  
 
-<a  target="_blank" href="https://gcam114.pages.dev"> 🔗 برای خرید و ورود به سایت بدون فیلتر اینجا را کلیک کنید 🚀
+<a  target="_blank" href="https://gcam007.pages.dev"> 🔗 برای خرید و ورود به سایت بدون فیلتر اینجا را کلیک کنید 🚀
  </a>
  </h3 >
  <p>
