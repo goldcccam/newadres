@@ -9,7 +9,7 @@
 </h3 >
  <b>   <br>  
 <h3 >
-<a  target="_blank" href="https"//www.goldappir.com/cc/"> 🔗 برای خرید و ورود به سایت بدون فیلتر اینجا را کلیک کنید 🚀
+<a  target="_blank" href="https"//www.goldappir.com/"> 🔗 برای خرید و ورود به سایت بدون فیلتر اینجا را کلیک کنید 🚀
  </a>
  </h3 >
  <p>
